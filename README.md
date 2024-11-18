@@ -18,6 +18,13 @@ About Me:
 
 📧 jeamphilippesaumier@gmail.com
 
+But you must Reach me on Facebook for fastest response !
+https://www.facebook.com/jpsaumier/
+
+or Linkedin
+
+https://www.linkedin.com/in/jean-philippe-s404/
+
 You can find me here when I’m not breaking my apps.
 
 ⚡ Fun Fact: Currently juggling 5-6 apps in various stages of "will-it-work?" One's actually live! Check it out: HyperfluxAI – shoutout to Render for making it happen.
